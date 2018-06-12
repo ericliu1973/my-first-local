@@ -1,2 +1,4 @@
 # my first local
-他和和她是干嘛的？
+
+changed to English !
+i don't like to speak in Chinese !
